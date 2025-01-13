@@ -61,10 +61,4 @@ For questions or support, please reach out:
 
 Telegram: [@dwlee918](https://t.me/@dwlee918)
 
-X: [@derricklee918](https://x.com/derricklee918)
-
 Medium: [@dwlee91](https://medium.com/@dwlee91)
-
----
-
-Thank you for exploring the Decentralized Marketplace on the Bitcoin Stacks blockchain!
